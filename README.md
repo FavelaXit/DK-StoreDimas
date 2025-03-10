@@ -1,2 +1,0 @@
-# DK-StoreDimas
-DK STORE
